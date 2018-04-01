@@ -1,1 +1,3 @@
 And so the first universe begins...
+
+...she's dead. I killed her. I had to get out of those ruins
